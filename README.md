@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NCG2102010
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on nothing right now
